@@ -1,4 +1,13 @@
-Also, **THIS REPO CONTAINS NULLSCAPE SPOILERS, ESPECIALLY FOR <details> <summary>THE CELESTIAL</summary> [SPOILER] </details>**!!
+> [!WARNING]
+> **THIS REPO CONTAINS NULLSCAPE SPOILERS!! ESPECIALLY FOR:**
+>
+> <details>
+> <summary>Click to reveal</summary>
+>
+> **THE CELESTIAL**
+> **CATALYST (Possibly)**
+>
+> </details>
 
 ---
 
