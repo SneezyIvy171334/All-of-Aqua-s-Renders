@@ -4,8 +4,9 @@
 > <details>
 > <summary>Click to reveal</summary>
 >
-> **THE CELESTIAL**
-> **CATALYST (Possibly)**
+> - **THE CELESTIAL**
+>
+> -**CATALYST (Possibly)**
 >
 > </details>
 
