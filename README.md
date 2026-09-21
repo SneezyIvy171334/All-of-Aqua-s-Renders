@@ -1,3 +1,7 @@
+Also, **THIS REPO CONTAINS NULLSCAPE SPOILERS, ESPECIALLY FOR <details> <summary>THE CELESTIAL</summary> [SPOILER] </details>**!!
+
+---
+
 # ALL OF MY RENDERS!!
 
 Alright, I'll make this fast, as I don't have a lot to say.
@@ -24,10 +28,8 @@ If you're unsure whether something is allowed, just ask me! I'd rather you ask b
 - Gambler
 - Sugar Rush
 
-# Also...
+---
 
 I love making shooting jokes, no I *don't* have a gun. 
-
-## Also, **THIS REPO CONTAINS NULLSCAPE SPOILERS, ESPECIALLY FOR ||THE CELESTIAL||**!!
 
 Anyways bye :)
