@@ -6,7 +6,7 @@
 >
 > - **THE CELESTIAL**
 >
-> -**CATALYST (Possibly)**
+> - **CATALYST (Possibly)**
 >
 > </details>
 
