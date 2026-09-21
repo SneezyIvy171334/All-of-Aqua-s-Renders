@@ -16,4 +16,8 @@ Please don't use my artwork to train, fine-tune, or create datasets for AI/ML mo
 
 If you're unsure whether something is allowed, just ask me! I'd rather you ask beforehand than have to shoot you afterward because hehe :3
 
+---
+
+I love making shooting jokes, no I *don't* have a gun
+
 Anyways bye :)
